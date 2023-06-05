@@ -1,6 +1,6 @@
 > **THE OFFICIAL TRIA.OS DIFFICULTY LIST**
 
-> **Eternal**
+> *ETERNAL**
 
 ``7.17`` **EndZone** by Nightlife Devs [2734427873] [https://www.youtube.com/watch?v=UB4tNo2ShjM] 
 
