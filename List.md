@@ -8,7 +8,7 @@
 
 ``7.00`` **Nos Astra** by Ethan76167 [12741011292/nos] [https://youtu.be/GEIhjIgeMhU]
 
-> **Divine**
+ **Divine**
 
 ``6.84`` **Layers** by Enszo [8559494055/layers] [https://www.youtube.com/watch?v=Yja6SpZVU_U]
 
